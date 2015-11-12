@@ -8,3 +8,4 @@ also follow me on twitter
 Mr Deg was here
 ayy lmao
 GANG GANG I GOT THAT HIGH TECH ON DECK I AINT NO FUFU NAH I AINT A LOULOU IM ALL DESIGNER TRUE RELIGION EVERYTHING EVEN MY WATER 
+Im dropping a mixtape soon hit me up
